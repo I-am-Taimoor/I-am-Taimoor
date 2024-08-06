@@ -7,3 +7,7 @@ Additionally, I have spent a year honing my skills in mobile app development usi
 What sets me apart is my dedication to delivering high-quality work on time and within budget. I have a strong commitment to staying updated with the latest technologies and industry trends, ensuring that I can provide innovative solutions that meet the evolving needs of clients.
 
 If you're looking for a reliable and skilled developer who can bring your web or mobile app idea to life, look no further. Let's discuss your project requirements and work together to create something exceptional. Feel free to reach out to me, and let's start building amazing digital experiences together!
+
+Regards,
+Muhammad Taimoor Naeem
+taimoor5896@gmail.com
